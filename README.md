@@ -1,2 +1,2 @@
 # MetroSystem-Grupo03-SS4A
-[imagen-2022-10-19-192910551.png](https://postimg.cc/1njMbf5J)
+https://miro.com/app/board/uXjVPZdst_4=/?share_link_id=491879137491
